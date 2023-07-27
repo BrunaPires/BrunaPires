@@ -2,7 +2,7 @@
 
 Meu nome é Bruna Pires 👩‍💻  🇧🇷
 
-Cursando Análise e Desenvolvimento de Sistemas 💻
+Análise e Desenvolvimento de Sistemas 💻
 
 -   📍  São Paulo - SP
 
